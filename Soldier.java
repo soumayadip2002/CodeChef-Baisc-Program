@@ -1,4 +1,4 @@
-/* qyestion------>Kattapa, as you all know was one of the greatest warriors of his time. 
+/* question------>Kattapa, as you all know was one of the greatest warriors of his time. 
 The kingdom of Maahishmati had never lost a battle under him (as army-chief), 
 and the reason for that was their really powerful army, also called as Mahasena.
 Kattapa was known to be a very superstitious person. He believed that a soldier is "lucky" if the soldier is holding an even number of weapons,
